@@ -2,6 +2,6 @@
 ***
 shadow or jordyn - nicknames welcome
 
-he/him boyfailure - bisexual aromantic
+he/him boyfailure - aromantic asexual
 
 ![](https://files.catbox.moe/wzznwt.gif)
